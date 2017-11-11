@@ -1,1 +1,1 @@
-# Mjmods
+# MJ-Mods
